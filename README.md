@@ -1,1 +1,1 @@
-# tecnoChinas
+# tecnoloChinas
